@@ -1,0 +1,51 @@
+# KARA – ミスター (Japanese Version)
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+la la la la la la la la la
+la la la la la la la la la
+la la la la la la la la la
+la la la la la la la la la
+友達以上 恋人未満
+曖昧なカンケーは 飽きたわ
+トタトタ 胸が
+チャクチャク 熱い
+フルギフルギ 願う
+チャクチャク Feel Me
+振り向かせたい Listen to my everything
+ねぇ誰のせい?
+HeyいますぐにMr.抱き締めてMr.
+その腕でMr.つかまえてMr.
+だってMr.こんなにもMr.
+欲しいのはMr.あなただけMr.
+la la la la la la la la la
+la la la la la la la la la
+la la la la la la la la la
+la la la la la la la la la
+シャイな笑顔 優しい声も
+(I'M GONNA LOVE YOU BE ALL RIGHT OH BABY TOUCH
+MY HEART)
+独り占めさせてよ わたしに
+コンダコンダ 好きが
+チャクチャク 増える
+スキスキ涙 溢れて True love
+ピアス開けたの 秘蜜も A little bit
+生まれ変わるの
+HeyわたしだけMr.みつめてよMr.
+あきるほどMr.そばにいてMr.
+もっとMr.閉じ込めてMr.
+その胸でMr.眠らせてMr.…
+la la la la la la la la la
+la la la la la la la la la
+la la la la la la la la la
+la la la la la la la la la
+HeyいますぐにMr.抱き締めてMr.
+その腕でMr.つかまえてMr.
+だってMr.こんなにもMr.
+欲しいのはMr.あなただけMr.
+HeyわたしだけMr.みつめてよMr.
+あきるほどMr.そばにいてMr.
+もっとMr.閉じ込めてMr.
+その胸でMr.眠らせてMr.…
+```
